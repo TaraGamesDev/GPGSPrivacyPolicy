@@ -1,4 +1,4 @@
-# GPGSPrivacyPolicy
+# Tara Games Privacy Policy
 
 시행일 : 2024년 02월 16일
 
